@@ -1,2 +1,1 @@
-# Haleema 
-
+# Haleema Recruitment Specialist, skilled in sourcing, CV screening, interviewing, and candidate assessment. Sourced, assessed and hired candidates for business & IT roles. Proficient at cold calling and LinkedIn. Interacted daily with Human Resources Managers regarding new hire reports and talent opportunities.
